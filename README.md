@@ -1,4 +1,4 @@
-## Welcome To A Blog
+## Welcome
 
 This blog covers a variety of topics related to public advocacy. Mostly, they tie into the video game industry and related topics.
 
